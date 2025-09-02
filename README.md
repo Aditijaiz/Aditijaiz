@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aditijaiz
-- 👀 I’m interested in Web development
+- 👀 I’m interested in data analyst
 - 💞️ I’m looking to collaborate with you.
 - 📫 How to reach me - aditijaiswalalg999@gmail.com
 
